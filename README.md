@@ -1,1 +1,0 @@
-# Arstudiosamplean9bg
